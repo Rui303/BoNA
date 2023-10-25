@@ -2,7 +2,6 @@
 1
 The Book of Unknown Americans
 
-2
 3
 Alma
 Back then, all we wanted was the simplest things: to eat good food, to sleep at night, to smile, to laugh, to be well. We felt it was our right, as much as it was anyone's, to have those things. Of course, when I think about it now, I see that I was naïve. I was blinded by the swell of hope and the promise of possibility. I assumed that everything that would go wrong in our lives already had.
